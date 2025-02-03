@@ -1,0 +1,1 @@
+This is an uneducated attempt to use github to display my homework. It is uneducated because I do not know or grasp how to even begin understanding how to use github, which is why I have paid so much money to attend college.
